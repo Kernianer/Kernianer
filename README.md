@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Kernianer
+- 👀 I’m interested in motivated developers who are looking for a new professional challenge
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate because I am also passionate about IT and development - only without developer skills
+- 📫 How to reach me v.herrmann@kern-partner.at
